@@ -15,4 +15,4 @@
     -Super Clean
         -Felt Safe
         
-        ### I enjoyed reading this -Daniel Di Carlo
+        ### Dakota is anexcellent classmate -Daniel DiCarlo
